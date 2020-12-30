@@ -11,4 +11,5 @@ Songs:
 Raw Tape Recordings:
 Anything but "Delayed" and "Outgoing Message: Not A Real Person"
 
+Feel free to edit this file or reply via email to rover130@gmail.com
 Thank you. Have a good day!
